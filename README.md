@@ -12,4 +12,4 @@ ananda.silva.silva@escola.pr.gov.br
 
 
 
-![](https://media.tenor.com/nCrHYv2kcgQAAAAC/que-pro-que-mega-pro.gif)
+![](https://media.tenor.com/_gYD08oGP8MAAAAd/cat-cute-cat.gif)
